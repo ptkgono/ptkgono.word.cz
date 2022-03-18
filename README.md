@@ -1,0 +1,1 @@
+# ptkgono.word.cz
